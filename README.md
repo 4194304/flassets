@@ -1,1 +1,1 @@
-There is NOTHING exciting here. Please move along and do actuallly productive things
+There is NOTHING exciting here. Please move along and do actually productive things
